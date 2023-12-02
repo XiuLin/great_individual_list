@@ -32,3 +32,8 @@ http://politics.people.com.cn/n/2015/0922/c70731-27617875.html
 ## 陆勇
 我不是药神
 https://zh.wikipedia.org/wiki/%E9%99%86%E5%8B%87%E6%A1%88
+
+
+## 陈怀炯
+大先生，无私奉献的中医
+http://sc.people.com.cn/n2/2023/0921/c345509-40579765.html
