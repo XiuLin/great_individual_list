@@ -37,3 +37,9 @@ https://zh.wikipedia.org/wiki/%E9%99%86%E5%8B%87%E6%A1%88
 ## 陈怀炯
 大先生，无私奉献的中医
 http://sc.people.com.cn/n2/2023/0921/c345509-40579765.html
+
+
+## 胡雷
+最美拾荒者
+https://open.163.com/newview/movie/free?pid=BIF7AV7MD&mid=ZIF7AV7NJ
+https://news.cctv.com/2021/11/30/ARTIxwGoft8v0EcvRHzh0I9T211130.shtml
